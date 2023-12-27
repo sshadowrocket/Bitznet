@@ -2,7 +2,7 @@
 
 Bitz Net最新官网地址：[https://ce.bitzapp.uk](https://ce.bitzapp.uk/#/register?code=Vu7eyHrN)
 
-[![BitzNet最新官网](bitz_uxtt_20230831_073935.png)](https://xuv.cc/ouybitz)
+[![BitzNet最新官网](bitz_uxtt_20230831_073935.png)](https://xuv.cc/out/bitz)
 
 ## BitzNet简介
 
