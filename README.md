@@ -1,6 +1,6 @@
 # BitzNet官网地址
 
-Bitz Net最新官网地址：[https://secure.bitzapp.uk/](https://secure.bitzapp.uk/#/register?code=Vu7eyHrN)
+Bitz Net最新官网地址：[https://dd.bitzapp.uk/](https://dd.bitzapp.uk/#/register?code=Vu7eyHrN)
 
 [![BitzNet最新官网](bitz_uxtt_20230831_073935.png)](https://xuv.cc/out/bitz)
 
